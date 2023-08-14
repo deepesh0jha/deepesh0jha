@@ -1,6 +1,6 @@
 # 👋 Hey!
 ### I'm Deepesh, the serene photographer
-- 👀 I’m interested in Shutter sounds!
+- 👀 I’m interested in shutter sounds!
 - 🌱 I’m currently learning Web Dev!
 - 👩🏼‍🎓 Studying High School @GVS
 - 📫 How to reach me: [Instagram](https://www.instagram.com/framesbypatty/), [Telegram](https://t.me/deepeshojha)
